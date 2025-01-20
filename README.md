@@ -1,4 +1,4 @@
-# AIRDROP WALLET CONNECT ! START 20 JANUARY 2025      -                END 14 APRIL 2025
+# AIRDROP WALLET CONNECT ! START 20 JANUARY 2025                -                END 14 APRIL 2025
 
 JOIN HERE : [https://app.layer3.xyz](https://app.layer3.xyz/quests?ref=0x9d18390cB051b558c56013745CaE2668E3cdBa57)
 
